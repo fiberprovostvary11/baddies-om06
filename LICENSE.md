@@ -1,4 +1,4 @@
-
+new Script for baddies offers the most advanced baddies Script, with custom skins and auto-heal. Perfect for dominating any match.
 
 
 
